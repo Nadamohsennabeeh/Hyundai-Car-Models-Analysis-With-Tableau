@@ -19,8 +19,10 @@ Launch campaigns to increase female customer engagement
 Prioritize production of white and grey colors
 Target mid-to-high income segments with premium features and financing plans
 
-<img width="1366" height="768" alt="WhatsApp Image 2026-04-22 at 12 51 40 PM" src="https://github.com/user-attachments/assets/8aad31da-5af5-4f06-b515-e39a80cacf71" />
-<img width="1366" height="768" alt="WhatsApp Image 2026-04-22 at 1 30 04 PM" src="https://github.com/user-attachments/assets/d857a483-ce6a-4147-87f1-d0a88b8467b5" />
+<img width="1366" height="768" alt="WhatsApp Image 2026-04-22 at 5 14 31 PM" src="https://github.com/user-attachments/assets/38a6dbdd-f8ad-4af1-a50b-1c1fc197d359" />
+
+<img width="1366" height="768" alt="WhatsApp Image 2026-04-22 at 5 20 18 PM" src="https://github.com/user-attachments/assets/0de40c8b-2370-4c6e-a323-10c333b4e889" />
+
 
 
 
